@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Laura
-- 👀 I’m interested in 
+- 👀 I’m interested in aprender programação
 - 🌱 I’m currently learning Alura
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 00001118245696sp@al.educacao.sp.gov.br
