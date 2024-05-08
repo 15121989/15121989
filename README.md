@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Laura
 - 👀 I’m interested in aprender programação
 - 🌱 I’m currently learning Alura
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on programação
 - 📫 How to reach me 00001118245696sp@al.educacao.sp.gov.br
 - 😄 Pronouns: ela/dela
 - ⚡ Fun fact: ...
